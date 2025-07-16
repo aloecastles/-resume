@@ -1,4 +1,4 @@
-# [>Download CV](https://github.com/user-attachments/files/18766770/CV_Rohalskyi.O_25.pdf)
+# [>Download CV](https://github.com/user-attachments/files/21267984/CV_Rohalskyi.O_07_25.pdf)
   |    
   |    
     |    
